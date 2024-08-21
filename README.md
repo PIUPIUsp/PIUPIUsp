@@ -1,5 +1,8 @@
 ##oi bem vindo
 
+:feelsgood:Ola! Eu sou Joao vitor martins e tenho 16 anos e sou um estudante
+
+
  🛠️-Atualmente estou trabalhando em mercado digital e como aprendiz de mecanico na parte de eletrica somente, e barman 
 
 🌍-Atualmente estou aprendendo a como lidar com a vida corrida e cansativa com problemas emocionais 
