@@ -2,7 +2,7 @@
 
 :feelsgood: Ola! Meu nome e Joao vitor martins tenho 16 Anos e sou um estudante
 
- 🛠️-Atualmente estou trabalhando em mercado digital e como aprendiz de mecanico na parte de eletrica somente, e barman 
+ 🛠️-Atualmente estou trabalhando em mercado digital e como mecanico na parte de eletrica somente, e barman e tatuador e carpinteiro artesanal 
 
 🌍-Atualmente estou aprendendo a como lidar com a vida corrida e cansativa com problemas emocionais 
 
